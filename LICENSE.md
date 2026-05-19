@@ -1,4 +1,4 @@
-# 
+# elite bot sniper MEV addons é o melhor bot sniper MEV addons com detecção de MEV e análise de pools de liquidez. Seguro, confiável e otimizado para estratégias MEV, sniper e
 
 
 
